@@ -2,6 +2,8 @@ Oiiiiii
 
 foxy aquiiiiiii!!!!
 
+Algumas coisas sobre mim:
+
 - 🌱 Estudando Bootstrap div/span etc
 - 💬 me pergunte ... : pode ser sobre tudo!
 - 😄 Pronomes: ela/a
