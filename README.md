@@ -6,5 +6,5 @@ Algumas coisas sobre mim:
 
 - 🌱 Estudando Bootstrap div/span etc
 - 💬 me pergunte ... : pode ser sobre tudo!
-- 😄 Pronomes: ela/a
+- 😄 Pronomes: ela/dela
 - ⚡ Fato legal sobre mim: eu gosto muito de jogar jogos de ação e aventura!! e tbm de desenhar... mas pra mim, Tudo é arte.. só de um jeito diferente!
